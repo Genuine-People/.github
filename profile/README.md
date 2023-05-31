@@ -4,3 +4,5 @@
 🌐 Available worldwide, we will let anyone sell on our platform, as long as they're genuine.
 
 Coming soon to a website near you!
+
+<sub><sup>The avatar style Micah is based on: Avatar Illustration System by Micah Lanier, licensed under CC BY 4.0 . / Remix of the original.</sup></sub>
